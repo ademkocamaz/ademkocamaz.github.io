@@ -1,1 +1,1 @@
-Adem KOCAMAZ - 0551 165 75 94
+Adem Kocamaz - İletişim Bilgileri, E-Mail, Özgeçmiş, Sosyal Medya ve Github Hesapları.
